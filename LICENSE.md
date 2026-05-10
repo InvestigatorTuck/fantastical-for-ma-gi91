@@ -1,4 +1,4 @@
-
+Get the ultimate Fantastical for macOS tool with instant Tool for Fantastical for macOS - real-time editing and reminders. Featuring real-time editing and reminders, it's the best
 
 
 
